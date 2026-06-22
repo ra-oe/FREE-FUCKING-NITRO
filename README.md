@@ -1,6 +1,7 @@
 # FREE FUCKING NITRO VIRUS
 fun virus that doesnt do shit just cause why not
 
+[JOIN MY DISCORD RIGHT NOW: https://discord.gg/mfmjRW7XTm](https://discord.gg/mfmjRW7XTm)
 # DISCLAIMER
 this is a fun little malware, it *WILL NOT* damage your pc though. (unless you have absolute shit ass pc)
 
